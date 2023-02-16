@@ -1,1 +1,2 @@
 # segitiga-sama-kaki
+oke
